@@ -1,0 +1,1 @@
+hasil=http://prntscr.com/ookk40
